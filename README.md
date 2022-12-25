@@ -1,1 +1,1 @@
-# Synergy5-binar-exercise
+# Synergy5-Binar
